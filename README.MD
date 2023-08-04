@@ -1,0 +1,1 @@
+Este un proiect pe github acc
